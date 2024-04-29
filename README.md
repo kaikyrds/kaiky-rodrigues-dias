@@ -1,2 +1,2 @@
 # kaiky-rodrigues-dias
-&lt;meus projetos/ minhas criações/ meus testes >
+meus projetos e testes ficam logo abaixo.
